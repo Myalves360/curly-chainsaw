@@ -20,7 +20,7 @@ A **SZ Soluções** é uma empresa focada no desenvolvimento de soluções tecno
 
 Se quiser saber mais sobre meu trabalho ou trocar ideias, fique à vontade para entrar em contato:
 
-- 📧 Email: [seuemail@example.com](mylenaferreira284629@gmail.com)
+- 📧 Email: [mylenaferreira284629@gmail.com](mylenaferreira284629@gmail.com)
 
 
 Obrigado por visitar meu perfil!
